@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Throuhtop
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning rapid router
+- 💞️ I’m looking to collaborate on email
+- 📫 How to reach me... tell me that you want to reach me, and I can send you my email
+- I love to make new friends and learn new things.
